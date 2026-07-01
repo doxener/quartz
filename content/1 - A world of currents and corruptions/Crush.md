@@ -1,0 +1,11 @@
+Crush is the commonly used name for the drug made out of [[Elements from the rift#Cinderstone|Cinderstone]] crumbling. The cinders and vapours have a strong pleasant calming effect. In addition of being highly addictive, going as far as causing mental distress and paranoia to those suffering from withdrawal. The drug has been proclaimed illegal in some parts of [[Ephyrea]] although it is completely legal in other places.
+
+Crush in its base form is a completely natural product. However usually the stones are mixed with other porous materials to calm the reaction and manage the strong effects. Crush grains are most sophistically used in inhaler masks. Those who are strongly addicted usually enter a stage where they crush the [[Elements from the rift#Cinderstone|Cinderstone]] in their bare hands and directly inhale the fumes. This results in black scorch marks on the inside of their palms. These poor souls are commonly referred to as "palm crushers".
+
+Crush is mostly created in and exported from the city of [[Rakeyr]] due to its close proximity to [[Y'Dris]]. The [[E.R.C.]] has put bans on shipping of crush, which has resulted in a large smuggling scene, figuring out loopholes in the regulation for regular [[Elements from the rift#Cinderstone|Cinderstone]] or plain illegal transports. There have even been heists on vessels containing large quantities of [[Elements from the rift#Cinderstone|Cinderstone]] mostly headed towards [[Ithral]].
+
+### Heat Herbs
+
+[[Cinderstone]] is also used in the cultivation of the soft drugs called heat herbs. The stones are mixed with certain seeds and then crushed within the soil. The herbs are then altered by the effect of cinder resulting in leaves that can be dried and smoked, or used as chewing tobacco, for a warm feeling all throughout your body. Although way less then crush, the herbs are still addictive. 
+
+Heat herbs are a common product all throughout [[Galdron]], especially by the [[Elements from the rift#Stygium|Stygium]] harvesters on [[The Galdron Outskirts]]. There it has become almost essential in keeping warm in the freezing cold.
