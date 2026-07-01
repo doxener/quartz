@@ -1,2 +1,0 @@
-The story takes place in [[The Pithia System]] where the only known civilizations are found on a world ruled by [[Currents]] and [[Corruption]]. The shattered planet of [[Ephyrea]] is home to these civilizations. The planet fell victim to an astronomical catastrophe known as [[The Shattering]]. Which resulted in in the separation of the continents of [[Ephyrea]] and the creation of [[The rift of Thessaly]]. 
-

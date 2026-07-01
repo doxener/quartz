@@ -1,9 +1,0 @@
-{
-	"nodes":[
-		{"id":"040cc572ee5bb83e","type":"text","text":"# Dune","x":-880,"y":-340,"width":720,"height":60},
-		{"id":"36eb71f491621faf","type":"text","text":"**Exhaustion pills**\n- pill to supress exhaustion\n- what side effect?","x":-880,"y":-260,"width":420,"height":120},
-		{"id":"3fccb7c321143790","type":"text","text":"**Poison snoopers**\n- tools to spot poison amongst the elite","x":-880,"y":-120,"width":420,"height":120},
-		{"id":"ad7ec67e9dfd08b9","type":"text","text":"**Plans within  plans**\n-  All the mentat plans\n- doing one thing that implies A but helps to reach B","x":-880,"y":20,"width":460,"height":120}
-	],
-	"edges":[]
-}

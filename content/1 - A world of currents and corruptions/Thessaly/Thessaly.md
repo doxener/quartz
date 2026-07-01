@@ -1,5 +1,0 @@
-Thessaly is the current heart of [[The Pithia System]]. Not much is known about Thessaly by the civilizations of [[Ephyrea]], the most prevalent theory is that it is a rift to a dark dimension that is the cause of all the currents and corruptions. 
-
-Thessaly however is in actuality an ancient stellar remnant, the first one to be precise. Thessaly is the neutron star remnant of the progenitor of all the gods/stars, its supernova created the stellar nebula that formed all stars. This remnant was forcibly brought into the [[The Pithia System]] by [[The protector]] and their followers, causing the astronomical catastrophe known as [[The Shattering]]. 
-
-The forceful interjection of Thessaly created the [[Elements from the rift]] and the Sunless system of [[The Pithia System |Pithia]]. [[The Shattering]] casted out the star Pithia and any other divination in the universe, by shielding the planet of [[Ephyrea]] within a shroud of darkness that dims all light.
